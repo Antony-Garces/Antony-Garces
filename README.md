@@ -1,6 +1,6 @@
 # ¡Hi there! I´m Antony Garces👋
 
-¡[](https://www.instagram.com/p/CiGqkJwsvIQ/?next=%2F)
+
 
 - 🔭 I´m currently learning full-stack     development, but for me, the best form to learn is by trying to teach others, for more information follow me on this social media.
 

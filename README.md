@@ -6,5 +6,5 @@
 
 ---
 - [Youtube](https://www.youtube.com/channel/UC3ITiY6o4znFvqOOcV4MTuA)
-- [LinkedIn](https://www.linkedin.com/in/antony-garces-pascuas-1b353732/)
+- [LinkedIn](https://www.linkedin.com/antony-garces-492020259/)
 - [Instagram](https://www.instagram.com/antonygarcespascuas/?next=%2F)
